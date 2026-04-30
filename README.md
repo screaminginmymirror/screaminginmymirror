@@ -1,9 +1,9 @@
 ![](https://cdn.discordapp.com/attachments/1279307405485936696/1498513479743574038/Untitled141_20260428102836.png?ex=69f16eee&is=69f01d6e&hm=79bbf0b2a0c4c27a9784cb700fadb77678186785b0b95875c06b6a48e2ffbd1a&)
 
 
-heyy!! this account is only 4 ponytown & im always active!^_^ you'll spot me at the docks, homestuck area, or at the bakery! C+H freely
+heyy this account is only 4 ponytown & im always active!^_^ you'll spot me at the docks, homestuck area, or at the bakery! 
 
-im either building or drawing, so if you want my attention, just whisper! 
+im also active in discord ask me 4 the user if you wanna chit chat
 
 
 ![](https://cdn.discordapp.com/attachments/1279307405485936696/1498524935465734155/tumblr_170c4cb7449059cc502fea0300d404e4_d16f58c0_75.gif?ex=69f17999&is=69f02819&hm=80913a3a61947ae187399d31e43cc46cc066454f611a2421d2f5b395b019eb48&) ![](https://cdn.discordapp.com/attachments/1279307405485936696/1498524929342177320/tumblr_12dc71c2983f91ae54ca9fc0a8ea4346_aa7d478c_100.png?ex=69f17998&is=69f02818&hm=ded094490d542e67b8352710d55bc4b4edc95087f49e1ed8cfc4599bd1bfcf1d&) ![](https://cdn.discordapp.com/attachments/1279307405485936696/1498524919334699088/tumblr_82c2278b70904b58f87922de3d455fe0_39b13952_640.gif?ex=69f17996&is=69f02816&hm=d41a9fbaaf66ae96524e5f8542d9e33f0aefe7dd262376ff5efe7d889bf70325&) ![](https://cdn.discordapp.com/attachments/1279307405485936696/1498524907829465258/tumblr_bf4bc6139295c7f52cc708b6b338fa9f_b104e060_100.png?ex=69f17993&is=69f02813&hm=3b5cd78c58e668a9b1be7af70e84adf181aa42e80f596310541587ff71057222&)
